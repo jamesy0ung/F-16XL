@@ -1,3 +1,5 @@
+Original Author is not active.
+
 UPDATED FOR XP-864 in 2009
 
 In 1977, two F-16's were "customized" (hence the reason for this aircraft being placed in CUSTOM DESIGNS) by General Dynamics in Ft. Worth Texas with a cranked-arrow delta wing design [the F-16XL's] and participated in the USAF search for a replacement of their F-111 Aardvark. The USAF requirements were for an aircraft capable of deep interdiction missions without the aid or assistance of additional fighter support or jamming support. The two aircraft that went head to head to replace the aging F-111 were the F-16XL and the presented day F-15E. The Air Force selected the two seater  F-15E. 
